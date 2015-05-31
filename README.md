@@ -1,6 +1,6 @@
-# example
+# Lean on me
 
-Some... times in this live
+Some... times in this life
 we all have pain
 we all have sorr...ow
 
